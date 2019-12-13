@@ -1,1 +1,1 @@
-# github.io-swankate-.github.io-
+# swankate.github.io
